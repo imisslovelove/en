@@ -7,6 +7,8 @@ layout: page
 
 English : A new start | expectation: master.  
 
-Photography : 650D + 18-135 => be sold  
+Working in SHANGHAI
 
 Contact : imisslovelove@gmail.com
+
+> If you visit to Hangzhou, please contact with me, and I will wait for you anytime.
